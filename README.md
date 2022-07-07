@@ -1,2 +1,3 @@
-# fuck_energy_station
-just say fuck to energy station.
+新希望
+新希望锦麟天玺
+锦麟天玺
